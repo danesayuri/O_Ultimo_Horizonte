@@ -14,6 +14,8 @@ Comecei pelo Leonard.AI, para gerar imagens sobre o planeta terra queimando em c
 
 ## 🚀 Resultados
 Uma história narrada, um conto, uma imagem, que toca o coração de quem ouve, pois mostra uma realidade alternativa, e muito provável que não estaremos aqui para vivenciar, mas estamos cada vez mais caminhando para este fim. 
+[conto o ultimo horizonte 1.zip](https://github.com/user-attachments/files/18381987/conto.o.ultimo.horizonte.1.zip)
+
 
 ## 💭 Reflexão (Opcional)
 Um vídeo com o conto, e a imagem de fundo. Eu amei experimentar as IAs e confesso que a história elaborada ficou melhor que a expectativa.
